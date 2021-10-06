@@ -1,4 +1,5 @@
-Hi, I’m @javierdash
-👀 I’m interested in know everyday a little more.
-🌱 I’m currently learning cyber security.
-📫 You can reach me here: https://www.linkedin.com/in/javier-herzkovich-05898abb/
+Founder of the online natural cosmetics store with the most followers on Instagram in Argentina. 
+Skill: learn new technologies. 
+Team worker. 
+I am creative and I have the ability to adapt to changes. 
+I am motivated by challenges, so in my free time I like to participate in obstacle courses.
